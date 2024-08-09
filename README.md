@@ -1,16 +1,13 @@
-## Hi there 👋
+## Oi sou a Ana Julia💗
+## esse é o meu perfil 
+- 👩 Meu nome é Ana Julia Rangel
+- 💛 Amo estar com a minha familia e amigos
+- 😂 Estudo na escola Leticia Godoy
+- 🤔 Estou cursando espanhol e ingles
+- 💬 Gosto de ouvir musicas de todos tipos 
+- 🥰 Amo fazer videos e fotos
 
-<!--
-**AnaJuliaRangel10/AnaJuliaRangel10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ Meu perfil do instagram 
+ @naju.rangel
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ![](https://media.tenor.com/2QeuWYkvKcgAAAAM/bellingham.gif)
