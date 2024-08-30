@@ -8,6 +8,6 @@
 - 🥰 Amo fazer videos e fotos
 
  Meu perfil do instagram 
- @naju.rangel
+ @naju.rangell
 
   ![](https://media.tenor.com/2QeuWYkvKcgAAAAM/bellingham.gif)
